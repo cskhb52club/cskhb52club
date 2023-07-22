@@ -1,16 +1,13 @@
-### Hi there 👋
+### Liên hệ CSKH B52 Club
 
-<!--
-**cskhb52club/cskhb52club** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Liên Hệ - CSKH - Số Điện Thoại Game Bài B52 Club - iWIN iOS
 
-Here are some ideas to get you started:
+- SĐT: 028.99999.222
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+https://iwinios.link/game/cskh-b52-club/
+
+https://www.behance.net/cskhb52club/info
+
+https://vi.gravatar.com/cskhb52club
+
+https://www.tumblr.com/cskhb52club
